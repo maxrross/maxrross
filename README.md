@@ -1,9 +1,6 @@
 ### max ross
 https://www.maxnross.com/
 
-https://www.ufadvice.com/
-
-https://lehungry.com/
 
 [![wakatime](https://wakatime.com/badge/user/70f252f5-a838-45a3-b716-5dcd4e80d576.svg)](https://wakatime.com/@70f252f5-a838-45a3-b716-5dcd4e80d576)
 
